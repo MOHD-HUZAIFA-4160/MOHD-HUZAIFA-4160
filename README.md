@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on ...Power BI Dashboard
 - 📫 How to reach me ...huzaifasaifi4160@gmail.com
 - https://www.linkedin.com/in/mohd-huzaifa-1276882b8/
-- 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
